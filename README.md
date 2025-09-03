@@ -1,2 +1,2 @@
 # first-respo
-idk new to this
+if you see this please tell me what i need to improve on
